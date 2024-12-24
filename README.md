@@ -10,7 +10,7 @@ my love for men is sos so hidedn let me kiss yiu men
 
 𓏲⋆ ִֶָ ๋𓂃 ⋆ - names u can call me : lennox, kaizen, ren, rinne, skate, soda, karl and more. I LOEV NICKANMEMSMS!!
 
-⋆｡° ✮ , - my pronouns are he / him, tho its okay id u call me a they / them.
+⋆｡° ✮ , - my pronouns are he / him, tho its okay if u call me a they / them.
 
 . ݁₊ ⊹ . ݁˖ - I'm 4teen, iwc if 18+. 
 
