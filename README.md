@@ -8,7 +8,7 @@ my love for men is sos so hidedn let me kiss yiu men
 
 ✦
 
-𓏲⋆ ִֶָ ๋𓂃 ⋆ - names u can call me : lennox, kaizen, ren, rinne, skate, soda, viktor, karl and more. I LOEV NICKANMEMSMS!!
+𓏲⋆ ִֶָ ๋𓂃 ⋆ - names u can call me : lennox, kaizen, ren, vein, rinne, skate, soda, viktor, karl and more. I LOEV NICKANMEMSMS!!
 
 ⋆｡° ✮ , - my pronouns are he / him, tho its okay if u call me a they / them.
 
