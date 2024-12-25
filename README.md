@@ -1,7 +1,4 @@
 
-![Untitled4_20241225174138](https://github.com/user-attachments/assets/58397435-da18-47b2-b592-f7fc19f55398)
-
-
 
 [ignore how this is so ugky i am NOT detailing just to change my personality and whole gh again]
 
