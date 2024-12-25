@@ -1,6 +1,9 @@
-[ignore how this is so ugky i am NOT detailing just to change my personality and whole gh again]
 
-my love for men is sos so hidedn let me kiss yiu men 
+![Untitled4_20241225174138](https://github.com/user-attachments/assets/58397435-da18-47b2-b592-f7fc19f55398)
+
+
+
+[ignore how this is so ugky i am NOT detailing just to change my personality and whole gh again]
 
 ![IMG_5887](https://github.com/user-attachments/assets/f7782e2a-104a-414d-ba2d-557232401f43)
 
